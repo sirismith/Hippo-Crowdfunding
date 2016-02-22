@@ -8,15 +8,15 @@ What we need to prepare beforehand:
    4. Thank you notes ready to sign, address, and mail to people.
 
 Rewards for people who donate:
-   Base reward: $5. A video about how to make the salve, so that people can make it themselves. This is given to everyone who donates base level and above
-   $10: + a personalized thank you note sent via snail mail.
-   $20: + 1 container of salve made by yours truly.
-   $25: + 1 container of salve made by yours truly, with a chosen added scent of your choice. (We can let you know if it'll work)
-   $30: + 4 containers of salve made by yours truly.
-   $40: + 4 containers of salve, with a chosen added scent.
-   $50: + 4 containers of salve, with a personalized thank you note.
-   $60: + 4 containers of salve with a chosen added scent, with a personalized thank you note.
-   $70: + 1 container of salve every month for a year.
-   $80: + 1 container of salve every month for a year, with a chosen scent.
-   $120: + 1 container of salve every month for a year, scented or unscented, and a personalized thank you note with each container.
+     Base reward: $5. A video about how to make the salve, so that people can make it themselves. This is given to everyone who donates base level and above
+    $10: + a personalized thank you note sent via snail mail.
+    $20: + 1 container of salve made by yours truly.
+    $25: + 1 container of salve made by yours truly, with a chosen added scent of your choice. (We can let you know if it'll work)
+    $30: + 4 containers of salve made by yours truly.
+    $40: + 4 containers of salve, with a chosen added scent.
+    $50: + 4 containers of salve, with a personalized thank you note.
+    $60: + 4 containers of salve with a chosen added scent, with a personalized thank you note.
+    $70: + 1 container of salve every month for a year.
+    $80: + 1 container of salve every month for a year, with a chosen scent.
+    $120: + 1 container of salve every month for a year, scented or unscented, and a personalized thank you note with each container.
   
