@@ -8,6 +8,7 @@ What we need to prepare beforehand:
    4. Thank you notes ready to sign, address, and mail to people.
 
 Rewards for people who donate:
+
      Base reward: $5. A video about how to make the salve, so that people can make it themselves. This is given to everyone who donates base level and above
     $10: + a personalized thank you note sent via snail mail.
     $20: + 1 container of salve made by yours truly.
